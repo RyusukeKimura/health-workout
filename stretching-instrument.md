@@ -21,8 +21,7 @@
 - [タイガーテール](https://www.amazon.co.jp/%E3%82%BB%E3%83%AB%E3%83%95%E3%83%9C%E3%83%87%E3%82%A3%E3%82%B1%E3%82%A2%E3%83%BB%E3%82%B8%E3%83%A3%E3%83%91%E3%83%B3-TT18-TigerTail-%E3%83%88%E3%83%AA%E3%82%AC%E3%83%BC%E3%83%9D%E3%82%A4%E3%83%B3%E3%83%88%EF%BC%86%E7%AD%8B%E7%AD%8B%E8%86%9C%E3%83%AA%E3%83%AA%E3%83%BC%E3%82%B9%E3%83%BB%E3%83%9E%E3%83%83%E3%82%B5%E3%83%BC%E3%82%B8%E3%83%AD%E3%83%BC%E3%83%A9%E3%83%BC-%E3%82%B9%E3%82%BF%E3%83%B3%E3%83%80%E3%83%BC%E3%83%89%E3%83%A2%E3%83%87%E3%83%AB%EF%BC%8846cm%EF%BC%89/dp/B000FE82QU/ref=sr_1_2_sspa?s=sports&ie=UTF8&qid=1546921181&sr=1-2-spons&keywords=%E3%82%BF%E3%82%A4%E3%82%AC%E3%83%BC%E3%83%86%E3%83%BC%E3%83%AB&psc=1)
 
 ### 前屈にオススメ
-- [ストレッチボード]
-(https://www.amazon.co.jp/s/ref=nb_sb_noss?__mk_ja_JP=%E3%82%AB%E3%82%BF%E3%82%AB%E3%83%8A&url=search-alias%3Dsporting&field-keywords=%E5%89%8D%E5%B1%88)
+- [ストレッチボード](https://www.amazon.co.jp/s/ref=nb_sb_noss?__mk_ja_JP=%E3%82%AB%E3%82%BF%E3%82%AB%E3%83%8A&url=search-alias%3Dsporting&field-keywords=%E5%89%8D%E5%B1%88)
 
 ### 開脚におすすめ
 - [フレックスクッション](https://www.amazon.co.jp/%E3%82%B5%E3%83%B3%E3%83%86%E3%83%97%E3%83%A9%E3%82%B9-%E3%83%95%E3%83%AC%E3%83%83%E3%82%AF%E3%82%B9%E3%82%AF%E3%83%83%E3%82%B7%E3%83%A7%E3%83%B3-%E3%83%96%E3%83%A9%E3%83%83%E3%82%AF-FC-A402K/dp/B00Q6NK0ZU/ref=pd_bxgy_200_img_2/355-3573543-9548754?_encoding=UTF8&pd_rd_i=B00Q6NK0ZU&pd_rd_r=72252213-12fe-11e9-984c-334efba7b65e&pd_rd_w=KrdZ6&pd_rd_wg=6mO2a&pf_rd_p=a4de75e6-d8f7-4a34-bd69-503ea4866e6c&pf_rd_r=TDHKVVEQRK6N12FZVC35&psc=1&refRID=TDHKVVEQRK6N12FZVC35)
