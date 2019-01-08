@@ -1,7 +1,7 @@
 # What's this??
 ストレッチ用の器具をまとめたもの。全部木村持ってる。
 
-# 器具一覧
+# XXしながら別の器具一覧
 ## ベッドで寝ながら
 ### 首・肩・腰
 - [ツボピロー](https://www.amazon.co.jp/Akaishi-AKAISHI-%E3%83%84%E3%83%9C-%E3%83%94%E3%83%AD%E3%83%BC-HB-095/dp/B0778RC8FJ/ref=pd_sbs_194_4/355-3573543-9548754?_encoding=UTF8&pd_rd_i=B0778RC8FJ&pd_rd_r=37060cf8-12fd-11e9-9c6b-931bf63e9b6e&pd_rd_w=1CSG2&pd_rd_wg=FSCp2&pf_rd_p=cda7018a-662b-401f-9c16-bd4ec317039e&pf_rd_r=DAC7K6545S7T7XBCYFKV&refRID=DAC7K6545S7T7XBCYFKV)
